@@ -1,1 +1,1 @@
-Organisation des BHH-Jahrgangs 2022
+BHH-Jahrgang 2022
